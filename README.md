@@ -9,6 +9,8 @@ I am skilled at
 - Bullying Patrick
 - Bullying Patrick
 
+Adding change to this file
+
 
 ## Hello My name is Patrick
 I'm a Junior at CSULB.
