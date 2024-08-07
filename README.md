@@ -18,11 +18,12 @@ I am skilled at
 
 
 ## Hello My name is Tommy
-
-
-
-
-
+- I am racist
+- asian
+- eat rice
+- burning large piles of leaves
+- arson
+- john minecraft
 
 
 ## Hello My name is mark
