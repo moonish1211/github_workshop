@@ -7,10 +7,12 @@ I am skilled at
 - Tax Fraud
 - Being mean to Patrick (hehe)
 - Bullying Patrick
+- Bullying Patrick
 
 
 ## Hello My name is Patrick
-
+I'm a Junior at CSULB.
+I'm the best player at war thunder.
 
 
 
@@ -35,7 +37,6 @@ I am skilled at
 
 
 ## Hello My name is Joe
-
 am the
 - I fw bluey heavy
 - I do not bully patricc :c
@@ -43,3 +44,4 @@ am the
 - I was person of the year in 2006
 - fortnite battle pass i just
 - I
+
