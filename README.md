@@ -35,9 +35,10 @@ I am skilled at
 
 ## Hello My name is Joe
 
-
-
-
-
-
-
+am the
+- I fw bluey heavy
+- I do not bully patricc :c
+- me an when the
+- I was person of the year in 2006
+- fortnite battle pass i just
+- I
