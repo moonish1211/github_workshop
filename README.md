@@ -9,8 +9,6 @@ I am skilled at
 - Bullying Patrick
 - Bullying Patrick
 
-Adding change to this file
-
 
 ## Hello My name is Patrick
 I'm a Junior at CSULB.
@@ -31,11 +29,12 @@ I'm the best player at war thunder.
 
 
 ## Hello My name is mark
-
-
-
-
-
+I am terrible at blobbey voleey 2
+I am 7 feet
+- i need money am broke
+- i need mo money
+- i need mo more money
+- joe is the best 
 
 
 ## Hello My name is Joe
